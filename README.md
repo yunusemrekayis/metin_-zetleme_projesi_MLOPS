@@ -1,0 +1,1 @@
+# metin_-zetleme_projesi_MLOPS
